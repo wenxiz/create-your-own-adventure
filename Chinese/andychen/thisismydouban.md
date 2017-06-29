@@ -2,3 +2,7 @@
 feel free to check it out and add me as friend, 谢谢！
 
 点击这里[here](https://www.douban.com/people/3279743/)访问我的主页。
+
+你好，我不是很有兴趣除非你是妹子。我将大家返回这里。
+
+点击这里[here](../mayDay/mayDay.md)
